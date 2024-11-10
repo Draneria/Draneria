@@ -1,0 +1,7 @@
+- 🌙 @Draneria here
+- 💜 I create (Free!) digital tools for artists, especially for Krita :>
+- 🎁 Check out my [Ko-Fi](https://ko-fi.com/draneria/shop) if you'd like to support (✧≖‿ゝ≖)
+- 👾 Fun fact: I am from Scotland!
+-
+-
+- *Bagpipes scream incoherently in the distance*
